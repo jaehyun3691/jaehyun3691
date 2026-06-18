@@ -1,7 +1,8 @@
-## Incoming M.S. Student
+# Jaehyun Park
 
-**Department of Immersive Media Engineering**
-**Sungkyunkwan University**
+**Incoming M.S. Student**  
+Department of Immersive Media Engineering  
+Sungkyunkwan University
 
 ---
 
